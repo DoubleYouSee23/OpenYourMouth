@@ -14,7 +14,7 @@ reasonable size.
 | Honey | 1/2 bear | 180 ml |
 | Whole citrus fruits (lemons, limes, oranges. Mix as you wish) | 6 | |
 
-### Instructions
+### Preperation
 
 1. Add about 1/2 of the apple juice to a sauce pan over medium heat.
 1. Add all of the honey to the apple juice. Heat and stir until the honey is dissolved.
