@@ -8,18 +8,20 @@
 
 ### Ingredients
 
-* 1/2 tsp ginger powder (or 1 tsp chopped ginger)
-* 1/2 tsp garlic powder (or 2 cloves chopped garlic
-* 1 tsp chili powder (or chili oil)(optional)
-* some chopped coriander
-* 1 Tbsp of sesame oil
-* 2 Tbsp dark soy sauce
-* 1/4 beef stock cube (variation: use lamb or ham cube; or veg cube and extra soy)
-* 1 or 1/2 frying steak (variation: lamb [legjoint cut or steak] or gammon; or mushrooms)
-* 1 bundle of noodles (enough for one person)
-* 2 spring onions
-* 1 head of pak choi (variations/additions: broccoli heads, cooking spinach, tat soi, or cavolo nero ...)
-* 40-50 cL boiling water (approx 1 cup)
+|Ingredients                                                                                                          |
+|:--------------------------------------------------------------------------------------------------------------------|
+|Ginger Powder                                                                  | 1/2 tsp (or 1 tsp chopped ginger)   |
+|Garlic Powder                                                                  | 1/2 tsp (or 2 cloves chopped garlic)|
+|Chili Powder (or Oil) [optional]                                               | 1 tsp                               | 
+|Chopped Coriander                                                              | Some                                |
+|Sesame Oil                                                                     | 1 Tbsp                              |
+|Dark Soy Sauce                                                                 | 2 Tbsp                              |
+|Beef Stock (or: lamb/ham cube; or veg cube and extra soy)                      | 1/4 Cube                            |
+|Frying Steak (or: lamb [legjoint cut or steak] or gammon; or mushrooms)        | 1 or 1/2                            |
+|1 bundle of noodles                                                            | (enough for one person)             |
+|Spring Onions                                                                  | 2                                   |
+|Pak Choi (and/or: broccoli heads, cooking spinach, tat soi, or cavolo nero ...)| 1 head                              |
+|Boiling water                                                                  | 40-50 cL (approx 1 cup)             |
 
 ### Utensils
 
